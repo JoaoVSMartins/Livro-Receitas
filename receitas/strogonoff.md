@@ -27,3 +27,22 @@
 - Sirva ainda quente
 
 - e claro, uma coca bem gelada
+
+  
+
+# Dica de Sobremesa
+
+- ## Ingredientes (6 porções)
+
+  -  1 lata de leite condensado
+
+  -  1lata de suco de maracujá (medida pela lata de leite condensado)
+
+  -  1 lata de creme de leite sem soro
+
+    ## Modo de preparo
+
+    - Em um liquidificador, bata o creme de leite, o leite condensado e o suco concentrado de maracujá.
+
+    - Em uma tigela, despeje a mistura e leve à geladeira por, no mínimo, 2 horas.
+
