@@ -26,4 +26,4 @@
 - Arroz e batata palha 
 - Sirva ainda quente
 
- 
+- e claro, uma coca bem gelada
