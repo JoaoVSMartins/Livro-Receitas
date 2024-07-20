@@ -56,5 +56,8 @@
 6. **Servir**:
    - Deixe a lasanha descansar por alguns minutos antes de servir.
    - Decore com salsinha ou cebolinha picada, se desejar.
+     # DICA 
+   
+     - Uma boa coca-cola gelada
 
 Bom apetite!
