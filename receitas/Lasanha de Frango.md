@@ -58,6 +58,6 @@
    - Decore com salsinha ou cebolinha picada, se desejar.
      # DICA 
    
-     - Uma boa coca-cola bem gelada 
+     - Uma boa coca-cola bem gelada com gelo
 
 Bom apetite!
