@@ -24,9 +24,10 @@
 # Dica de Acompanhamento 
 
 - Arroz e batata palha 
+
 - Sirva ainda quente
 
-- e claro, uma coca bem gelada
+- e claro, uma coca bem gelada com  gelo
 
   
 
