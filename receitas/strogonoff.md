@@ -27,7 +27,7 @@
 
 - Sirva ainda quente
 
-- e claro, uma coca bem gelada com gelo
+- e claro, uma coca bem gelada com gelo e limão
 
   
 
