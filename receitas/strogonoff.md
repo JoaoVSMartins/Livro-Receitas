@@ -46,4 +46,4 @@
     - Em um liquidificador, bata o creme de leite, o leite condensado e o suco concentrado de maracujá.
 
     - Em uma tigela, despeje a mistura e leve à geladeira por, no mínimo, 2 horas.
-
+fim
