@@ -7,7 +7,7 @@
 - 1 dente de alho picado
 - 1 tomate picado
 - 1/2 xícara de molho de tomate
-- Sal e pimenta a gosto
+- Sal e pimenta a gostoo
 - Azeite de oliva
 
 #### Molho Branco:
